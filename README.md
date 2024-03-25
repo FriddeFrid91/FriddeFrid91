@@ -5,5 +5,3 @@
 - 👯 I’m looking to collaborate on anything that can I learn from!
 - 🪩 I'm into everything related to music, I'm a concert enthusiast, and I enjoy gaming and chilling like a villain. 
 - 📫 How to reach me: @Discord - fridde91
-  
--->
